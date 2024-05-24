@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @WajeehCodes
+- 👀 I’m a professional full stack developer and android developer
+- 🌱 I’m currently looking for some clients and a team
+- 💞️ I’m looking to collaborate with pro developers
+- 📫 You can contact me on my Whatsapp: +92 328 6647 560
+- ⚡ I'm 24/7 available for your help so don't feel anxious when contacting me
